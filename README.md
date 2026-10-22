@@ -1,1 +1,0 @@
-# Pembahasan-SPLTV-dalam-Kehidupan-Sehari-Hari
